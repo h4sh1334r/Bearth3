@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Cyber Security**
 
-- 📫 How to reach me **contact.bearth3@gmail.com**
+- 📫 Reach me in: **contact.bearth3@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
